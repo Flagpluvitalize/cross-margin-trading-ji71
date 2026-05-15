@@ -1,4 +1,4 @@
-# 
+# rare cross-margin trading bot Executor | scalping + isolated-margin offers the most advanced cross-margin trading bot, with scalping and isolated-margin. Ideal for professional
 
 
 
